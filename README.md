@@ -1,0 +1,2 @@
+# temponews-investor
+# goyang-lidah
